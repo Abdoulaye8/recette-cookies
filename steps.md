@@ -5,4 +5,6 @@
 - Beurrer une plaque allant au four et former les cookiessur la plaque.
 - Pour former les cookies, utiliser 2 cuillères à soupe et faire des petitstas espacés pour la cuisson.
 - Enfourner pour 10 minutes de cuisson.
+- enfin deguster
+
 attendre quelques minutes avant de gouter
